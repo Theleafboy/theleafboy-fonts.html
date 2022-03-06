@@ -1,2 +1,2 @@
-# gg
-GG
+# .com
+Azon.com
